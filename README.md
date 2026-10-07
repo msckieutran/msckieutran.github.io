@@ -1,2 +1,22 @@
-# kieutran
-Pharmacist - Master of Biomedical Science (Univ. of Montpellier, France), 10+ years in pharma incl. 5 years preparing drug registration dossiers for the DAV. Fluent in English &amp; French, seeking Medical Writer roles.
+# Tran Thi My Kieu – Medical Writer
+
+**Regulatory & Scientific Writing** · BPharm · MSc Biomedical Science (University of Montpellier, France)
+
+🔗 **Portfolio:** https://msckieutran.github.io/kieutran/
+
+Pharmacist with 10+ years in pharmaceutical science and 5+ years writing submission-ready regulatory documents. Authored CTD-format drug registration dossiers for the Drug Administration of Vietnam (DAV) and prepared responses to regulatory queries within deadlines. Writes for regulators, clinicians and students in English, French and Vietnamese.
+
+Seeking a medical writer role at a pharmaceutical company, CRO or medical communications agency.
+
+## Writing expertise
+- Regulatory writing (ACTD / ICH-CTD dossiers)
+- Responses to regulatory queries (DAV)
+- Scientific & technical reports
+- Literature search, review & synthesis
+- Editing & proofreading
+- Educational & training content
+- English / French scientific writing
+
+## Contact
+- Email: msc.phm.kieutran@gmail.com
+- Phone: +84 767 445 747
