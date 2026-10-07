@@ -5,9 +5,6 @@
 🔗 **Portfolio:** https://github.com/msckieutran/porfolio
 
 Pharmacist with 10+ years in pharmaceutical science and 5+ years writing submission-ready regulatory documents. Authored CTD-format drug registration dossiers for the Drug Administration of Vietnam (DAV) and prepared responses to regulatory queries within deadlines. Writes for regulators, clinicians and students in English, French and Vietnamese.
-
-Seeking a medical writer role at a pharmaceutical company, CRO or medical communications agency.
-
 ## Writing expertise
 - Regulatory writing (ACTD / ICH-CTD dossiers)
 - Responses to regulatory queries (DAV)
