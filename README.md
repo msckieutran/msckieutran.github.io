@@ -1,4 +1,4 @@
-# Tran Thi My Kieu – Medical Writer
+# TRAN Thi My Kieu – Medical Writer
 
 **Regulatory & Scientific Writing** · BPharm · MSc Biomedical Science (University of Montpellier, France)
 
